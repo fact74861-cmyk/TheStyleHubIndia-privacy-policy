@@ -1,1 +1,1 @@
-# pinterest-privacy-policy
+TheStyleHubIndia-privacy-policy
